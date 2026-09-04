@@ -23,3 +23,4 @@ Su nombre surgió durante la investigación de [[Rizel]] y [[Ren]] sobre la acti
 
 - [[Gremio de Comerciantes de Hashitawa]] — organización con la que mantiene vínculos.
 - [[Renji]] — comerciante abastecido mediante la red del gremio.
+- [[Hashitawa]]

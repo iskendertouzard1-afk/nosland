@@ -20,7 +20,7 @@ Mantiene vínculos comerciales con mercaderes que operan fuera de la capital, en
 
 ## Miembros y relacionados
 
-- [[Hiroshi]] — figura vinculada al gremio.
+- [[Hiroshi Maruya]] — figura vinculada al gremio.
 - [[Katsuro Ishida]] — relacionado con el suministro de mercancías.
 - [[Renji]] — comerciante afiliado.
 - [[Daichi]] — comerciante vinculado al gremio.
